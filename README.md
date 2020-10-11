@@ -1,7 +1,7 @@
 ### Hey! Its me Jay Czhelle! 
 
     Third year college Bachelor of Science in Information System major in Business Analytics student at West Visayas State University.
-Living jn Santa Barbara, Iloilo.
+Living in Santa Barbara, Iloilo.
 
 _____
 ### :seedling: Im currently learning 
@@ -32,3 +32,4 @@ _____
 ##### Cogito_Ergo_Sum
 ##### Veni Vidi Vici
      
+_____
