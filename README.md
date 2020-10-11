@@ -18,8 +18,8 @@ _____
 - Strolling when have a sparetime
 _____
 ### 🔎 I'm Looking for help:
--Part-time job that can help even in a small amount to my family.
--finding my self to be a better citizen.
+- Part-time job that can help even in a small amount to my family.
+- finding my self to be a better citizen.
 
 _____
 ### 📫 How to reach me: can follow and add me at
